@@ -1,0 +1,1 @@
+Utilizing algorithms and my mind and studies to turn the chaos of town traffic into an arranged symphony in this technologically superior adventure. I actually would organized to explore the area of ‘information meets avenue’ within this study.
